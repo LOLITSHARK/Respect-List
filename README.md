@@ -6,6 +6,8 @@ Dewfs - Makes AGC I mean nothing else but a good developer but wont allow vaziak
 
 Vaziak - Makes decent clients, can be a dick sometimes but hes a pretty chill guy. Proud member of the Artemis Leaking Mafia. 7.5/10
 
+Johannes - Makes Karhu, a pretty decent anticheat overall but what makes it a banger anticheat is the 3.05 reach detection and it's 10euro. 9.5/10
+
 Elevated - Insane anticheat developer helps anyone that needs help, and even gives ideas towards how to make checks. All around a nice guy.. 9 3/4 floors/10
 
 Mexify - Is annoying but is chill and a nice kid all around, likes to help out with shitting on random things even tho he knows nothing abt them. 6.9/10
