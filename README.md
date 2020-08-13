@@ -2,11 +2,11 @@
 
 
 
-Hark - ABOVE ALL . 
+Hark - ABOVE ALL . 100/10
 
 
 
-Simon - Best developer makes best anticheats, loves to criticize others code but it's actually really helpful. 10/10
+Simon - not alive CBA 1/10
 
 Dewfs - Makes AGC I mean nothing else but a good developer but wont allow vaziak become staff on MMC :sob: dog/10
 
