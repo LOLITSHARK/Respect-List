@@ -4,7 +4,9 @@
 
 Hark - ABOVE ALL . 100/10
 
+Erouax - Made AGC 10/10
 
+Rowin - Outstanding coderman 20/10 
 
 Simon - not alive CBA 1/10
 
