@@ -8,6 +8,8 @@ Erouax - Made AGC 10/10
 
 Rowin - Outstanding coderman 20/10 
 
+wheree - Invented Larry-AI Anti-Cheat 100/10
+
 Simon - not alive CBA 1/10
 
 Dewfs - Makes AGC I mean nothing else but a good developer but wont allow vaziak become staff on MMC :sob: dog/10
